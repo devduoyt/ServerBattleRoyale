@@ -13,3 +13,7 @@ Caso o link por algum motivo expire, pode me chamar pelo nick: devadrien_dd.
 Por favor, também sigam o canal do youtube: https://youtube.com/@devduoyt
 
 Dito isso, bom desafio a todos ^-^
+
+## PRAZO FINAL
+
+Você pode enviar seu desafio até 30/06/2026
